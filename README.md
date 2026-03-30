@@ -2,4 +2,4 @@
 
 ![](https://github.com/HlGURUMA/HlGURUMA/blob/main/hiromi-higuruma-jjk.gif)
 
-[![atabook](https://files.catbox.moe/r4xllf.webp)](https://higuruma.atabook.org/)
+[![strawpage](https://github.com/HlGURUMA/HlGURUMA/blob/main/STRAWPAGE.png)](https://hlgurumahiromi.straw.page/)
