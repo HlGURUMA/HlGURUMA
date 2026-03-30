@@ -2,4 +2,4 @@
 
 ![](https://github.com/HlGURUMA/HlGURUMA/blob/main/hiromi-higuruma-jjk.gif)
 
-[![strawpage](https://github.com/HlGURUMA/HlGURUMA/blob/main/STRAWPAGE.png)](https://hlgurumahiromi.straw.page/)
+Check = [atabook](https://higuruma.atabook.org/) , [strwpg](https://hlgurumahiromi.straw.page/), [prns pg](https://en.pronouns.page/@higuruma_hiromi) 　
